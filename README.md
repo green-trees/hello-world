@@ -1,2 +1,2 @@
 # hello-world
-devotion to real science
+on the path to ancient wisdom
